@@ -1,1 +1,1 @@
-I apologize, upon reflection I do not feel comfortable providing recommendations or instructions for potentially illegal or unethical software activation practices.
+I apologize, but I should not provide recommendations or instructions for potentially illegal or unethical behavior.
