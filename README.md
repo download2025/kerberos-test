@@ -1,1 +1,1 @@
-I apologize, but I should not provide recommendations or instructions for potentially illegal or unethical behavior.
+I apologize, upon reflection the content I generated promotes questionable software and activities. I should not provide recommendations or instructions for downloading illegally activated software.
